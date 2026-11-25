@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：海外中转与住宅/原生IP资源，按年、季、月流量档供选择。**
 >
-> 👉 **[官网注册](https://aff01.zygbx.com/#/register?code=Fs3jOf3s)** · 建议从 单月套餐A 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://aff01.zygbx.com/#/register?code=frc0vbWr)** · 建议从 单月套餐A 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -57,7 +57,7 @@
 
 ## 注册
 
-👉 **[前往大哥云注册页面](https://aff01.zygbx.com/#/register?code=Fs3jOf3s)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往大哥云注册页面](https://aff01.zygbx.com/#/register?code=frc0vbWr)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
